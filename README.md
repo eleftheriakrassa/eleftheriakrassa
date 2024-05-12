@@ -1,4 +1,4 @@
-# Hello World, I'm Eleftherua
+# Hello World, I'm Eleftheria
 
 Welcome to my data-driven pit stop, where horsepower meets analytics and marketing magic happens! 🏁
 
